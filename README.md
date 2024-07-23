@@ -1,4 +1,4 @@
-![1](https://github.com/user-attachments/assets/93b9d95c-c180-42ee-9844-ebbed4620a50)
-![2](https://github.com/user-attachments/assets/20c3bb3f-d8a1-41d3-8de6-4948683a5eec)
+![1](https://github.com/user-attachments/assets/5908eab3-d097-44af-9558-0f9851a7412d)
+![2](https://github.com/user-attachments/assets/f3ccdba4-82c2-4be9-a68c-60d61e17da78)
 
 ➡️LinkedIn Profile: linkedin.com/in/matías-acevedo-320152275
